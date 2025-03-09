@@ -1,4 +1,4 @@
-# Inter
+# Inter THE KING IS BACK WAXWORKX
 
 Inter is a typeface carefully crafted & designed for computer screens.
 Inter features a tall x-height to aid in readability of mixed-case and lower-case text.
